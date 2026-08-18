@@ -1,1 +1,0 @@
-# KasNo-POS
